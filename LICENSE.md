@@ -1,4 +1,4 @@
-
+rare Logic Pro for macOS Filter | chromatic-aberration-fix + text-animation is the best Logic Pro for macOS filter, featuring chromatic-aberration-fix and text-animation. Safe,
 
 
 
